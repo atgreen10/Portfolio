@@ -1,2 +1,1 @@
 # Portfolio
-For potential employers
